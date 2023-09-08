@@ -1,6 +1,5 @@
 ### aurelyaaaaaaaaaaaaaaa <3
-15 a
-👍
+15 a 👍 🏳️‍⚧️
 
 <!--
 **aurelyaaaaaaaaaaaaaaa/aurelyaaaaaaaaaaaaaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
